@@ -1,1 +1,1 @@
-## Hi, I'm Jellychicken. 👋
+## Hi, I'm Jellychicken.
